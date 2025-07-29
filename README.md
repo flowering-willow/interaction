@@ -20,3 +20,5 @@ HYPERFIXATIONS:
 BFDI, BFDIA, TPOT, BFB, DIEOFDEATH, SEWH, LIMBUSCOMPANY
 
 don't bring up bl00d i get rlly uncomfortable srry
+
+https://willowbloomed.straw.page
