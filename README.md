@@ -9,7 +9,7 @@ many hyperfixations lelele
 
 self-diagnosed ADHD
 
-PLEASE C+H AND INT, THATS MY COMF
+PLEASE C+H AND INT, THATS OUR COMF
 
 fictkins: cricket, blixer, orchestraful
 
@@ -26,3 +26,5 @@ DIE OF DEATH
 don't bring up bl00d i get rlly uncomfortable srry
 
 https://willowbloomed.straw.page
+<img width="736" height="484" alt="image" src="https://github.com/user-attachments/assets/5795598c-934c-4d73-8dd8-3a5575a6444e" />
+
