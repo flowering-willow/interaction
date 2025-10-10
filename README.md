@@ -1,15 +1,17 @@
 # readme
-Hi, I'm Willow
+Hi, Willow here
 
-i like to be called Aurora, Cryo and Flower too
+we like to be called Aurora, Cryo and Flower too, also preferably our fictkins
 
-i go by they\them and she\her (they\them preferred)
+we go by we\them and she\her (she\them preferred)
 
 many hyperfixations lelele
 
 self-diagnosed ADHD
 
 PLEASE C+H AND INT, THATS MY COMF
+
+fictkins: cricket, blixer, orchestraful
 
 <3: G, A, J, A, A, R, F
 
